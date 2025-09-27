@@ -1,9 +1,11 @@
 # Rakesh Kumar
 
+![Rakesh Kumar](Rakesh-Kumar.jpg)
+
 **Manager Experience Engineer at Publicis Sapient**
 
 📧 [rakeshpersonal@gmail.com](mailto:rakeshpersonal@gmail.com)  
-🔗 [LinkedIn](https://www.linkedin.com/in/rakeshpersonal/) | [Medium](https://medium.com/@rakeshkumar-42819)  
+🔗 [LinkedIn](https://www.linkedin.com/in/rakeshpersonal/) | [Medium](https://medium.com/@rakeshkumar-42819) | [Profile](https://rakesh-kumar.onhercules.app/)  
 📍 L-1189, Mangol Puri, New Delhi – 110083  
 📱 +91 9873 924 772
 
